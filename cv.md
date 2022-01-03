@@ -1,4 +1,4 @@
-# 1. **Name: VOLHA ADASHKEVICH**
+# 1. **Name: VOLHA VASilevna ADASHKEVICH**
 
 # 2. Contacts:
 ## * Mobile phone: +375-29-5-58-12-49
